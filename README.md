@@ -1,1 +1,1 @@
-[![gay](https://cdn.discordapp.com/attachments/713346278003572777/774982787265593374/09ed8472-9fff-4586-9c53-86fa005f9c86.png)]
+[![gay](https://gyazo.com/dae971b078ebf4f84cdf0968522e3d72)]
